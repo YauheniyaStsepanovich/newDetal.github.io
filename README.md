@@ -1,0 +1,2 @@
+# newDetal.github.io
+Автозапчасти
